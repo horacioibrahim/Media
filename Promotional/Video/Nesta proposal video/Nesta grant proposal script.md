@@ -1,0 +1,4 @@
+#Chelmsford Makerspace – Nesta Grant Proposal##CM Cinematography###Ben Heaysman-----------------------------------------------------------------*Camera on dolly (made by Ben and Harry) rolls up towards entrance of space with someone walking in. Camera pans over the space with people all working***V.O Ben Orrin***CUT TO BEN***Ben speaking in focus; People in background working out of focus.***CUT BACK TO SPACE – People working***V.O continues.***Film around the room. People are working on individual projects.Close ups of projects***V.O ends.****Speaking/interviews with people – Max of 15-20 seconds.***CUT TO – People talking to each other all busy with their projects.**Possible time lapse of RepRap.**CUT TO – Richard in focus – Interview***V.O – People working***CUT TO – Richard**CUT TO – People working***Ben wraps up***Panning shot of the space*
+*Camera rolls out on dolly track*
+*Someone shuts door.*
+*Fade to logo*
